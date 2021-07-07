@@ -50,7 +50,7 @@ For educational purposes only, e.g. refer to this list to check if you are being
 
  - Wiremouth (why your mouth)
  - Wilma (will my)
-
+ - Doomah (Do my. Victim is made to spell Hamood backwards)
 ### Insisting other party's action on deez nuts
 
  - Sugan (suck on)
